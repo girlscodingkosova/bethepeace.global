@@ -1,1 +1,1 @@
-# bethepeace.global
+# bethepeace
